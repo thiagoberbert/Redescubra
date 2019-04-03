@@ -1,0 +1,2 @@
+# Redescubra
+Conhecimento é Poder
